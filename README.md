@@ -1,3 +1,3 @@
-# LaLumiereAutonomeDeTaCite
+## LaLumiereAutonomeDeTaCite
 
-(renomme moi ce fichier baka)
+Fichier réservé aux auteurs. A ne pas utiliser sans autorisation.
